@@ -1,1 +1,1 @@
-# raghu-institute-of-technology
+# Dinesh-kanth.raghu-institute-of-technology
